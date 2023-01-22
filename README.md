@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jmad12
+- 👋 Hi, I’m @Jmad
 - 👀 I’m interested in Dungeons and Dragons, FFXIV, Dofus, Brandon Sanderson and other nerdy things
 
 <!---
